@@ -3,5 +3,5 @@
 I am a Civil engineer. Working as a Assistant Professor at Navajo Technical University.
 Specialized in Structural Design
 
-- Email: vanusuya@gmail.com
-- GitHub : https://anusuya-nmsu.github.io/
+- Connect via [mail](vanusuya@gmail.com)
+- Find me [here](https://anusuya-nmsu.github.io)
