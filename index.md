@@ -5,3 +5,7 @@ Specialized in Structural Design
 
 - Connect via [mail](vanusuya@gmail.com)
 - Find me [here](https://anusuya-nmsu.github.io)
+
+
+![Anusuya](https://www.researchgate.net/profile/Anusuya-Vellingiri-2 "Anusuya")
+
