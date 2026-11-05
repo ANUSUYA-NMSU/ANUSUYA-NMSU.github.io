@@ -6,6 +6,8 @@ Specialized in Structural Design
 - Connect via [mail](vanusuya@gmail.com)
 - Find me [here](https://anusuya-nmsu.github.io)
 
+  
+![Priere Dog](img/IMG_7961.DNG "Praire Dog")
 
-![Anusuya](img/Anupng.png "Anusuya")
+
 
