@@ -7,5 +7,5 @@ Specialized in Structural Design
 - Find me [here](https://anusuya-nmsu.github.io)
 
 
-![Anusuya](https://www.researchgate.net/profile/Anusuya-Vellingiri-2 "Anusuya")
+![Anusuya](img/Anupng.png "Anusuya")
 
